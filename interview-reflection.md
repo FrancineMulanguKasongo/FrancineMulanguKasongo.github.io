@@ -10,10 +10,10 @@ I had to prepare for and record a professional mock interview, then reflect on t
 - I researched common interview questions and prepared my answers
 - I set up a quiet, professional environment for recording
 - I dressed professionally and tested my recording equipment
-- I practiced my responses to sound confident but natural
+- I practiced my responses to sound confident but natural as possibile
 - I recorded the video and reviewed it critically
 - I noted areas where I spoke clearly and maintained good eye contact
 - I identified areas for improvement (e.g., reducing filler words)
 
 ## Result
-The mock interview helped me build confidence in professional communication. I realized I'm good at explaining my technical knowledge clearly. I need to work on [mention specific improvement]. This experience prepared me for real job interviews and taught me the importance of preparation.
+The mock interview helped me build confidence in professional communication. I realized I'm good at explaining my technical knowledge clearly. I need to work on better articulating my words,keeping trcak on one topicand let my mind rail on and on. This experience prepared me for real job interviews and taught me the importance of good preparation.
